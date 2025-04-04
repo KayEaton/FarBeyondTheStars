@@ -1,1 +1,1 @@
-donate to support more resistence art: PayPall @jodyisawesome
+donate to support more resistence art: paypal.me/AnonymousUser5
